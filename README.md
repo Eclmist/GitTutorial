@@ -1,2 +1,2 @@
 # GitTutorial
-I am da king of wakanda
+I iz da real king of wakanda
